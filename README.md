@@ -1,1 +1,1 @@
-# My-Passion
+There's a lot you can do with a computer, and if you're just getting started it can seem pretty daunting. Luckily, computers have gotten simpler over the years, and you can be up and running in just a few minutes. From setting up your new computer to safely browsing the internet and installing your favorite programs.
